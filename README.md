@@ -1,1 +1,0 @@
-# sql-bdi-i-2026-i-Joseamaya013
